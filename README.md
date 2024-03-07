@@ -1,1 +1,1 @@
-# sustainably-clothing
+# sustainable-clothing
